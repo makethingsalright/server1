@@ -1,1 +1,1 @@
-⚠️ Latest updated Nov 6th, 2026. Please confirm each time before you send.
+⚠️ Heads-up: We'll ask you to confirm before each send—just a quick check. (Updated Nov 6, 2026)
