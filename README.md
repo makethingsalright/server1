@@ -1,1 +1,1 @@
-⚠️ Heads-up: We'll ask you to confirm before each send—just a quick check. (Updated Nov 6, 2026)
+⚠️ Heads-up: We'll ask you to confirm before each send—just a quick check. (Updated Nov 12, 2026)
